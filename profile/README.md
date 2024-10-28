@@ -1,1 +1,2 @@
-# UNDP
+# Our mission, our goals, our mandate
+As the lead United Nations agency on international development, UNDP works in 170 countries and territories to eradicate poverty and reduce inequality. We help countries develop policies, leadership skills, partnerships and institutional capabilities to achieve the Sustainable Development Goals. Our work is centred around six core development areas, known as our signature solutions: poverty and inequality, governance, resilience, environment, energy and gender equality.
